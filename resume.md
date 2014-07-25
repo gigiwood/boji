@@ -26,9 +26,9 @@ Participating in highly-selective, nine-week training program to learn full-stac
 Corridor Business Journal - Coralville, Iowa
 June 2012 to March 2014
 Led editorial content and management of four-person newsroom for eastern Iowa's business newspaper, with circulation of 22,000, which has doubled during past five years. 
-• Coordinated weekly newspaper stories and photos, as well as two daily email updates, company website and specialty magazines. Designed and implemented editorial content for newspapers and magazines, including Entrepreneur 101, Fastest Growing Companies, Largest Privately Held Companies Magazine, Power Book, 2014 Women of Influence 10-Year Anniversary Magazine. 
-• Managed and planned specialty newspaper editions throughout the year, including the Best of the Corridor, Coolest Places to Work, Forty Under 40, HealthCare Summit and Women of Influence. 
-• Reviewed budget and strategic planning with administration. Managed staff and coordinated freelance writers and photographers. Oversaw staff hiring and departures. Completed administrative tasks. 
+* Coordinated weekly newspaper stories and photos, as well as two daily email updates, company website and specialty magazines. Designed and implemented editorial content for newspapers and magazines, including Entrepreneur 101, Fastest Growing Companies, Largest Privately Held Companies Magazine, Power Book, 2014 Women of Influence 10-Year Anniversary Magazine. 
+* Managed and planned specialty newspaper editions throughout the year, including the Best of the Corridor, Coolest Places to Work, Forty Under 40, HealthCare Summit and Women of Influence. 
+* Reviewed budget and strategic planning with administration. Managed staff and coordinated freelance writers and photographers. Oversaw staff hiring and departures. Completed administrative tasks. 
 • Supervised planning, development and production of new magazines Student Entrepreneurs, Veterans in the Corridor Workplace and Newsmakers 2013. Led major newspaper redesign in 2013. 
 • Implemented and conducted social media marketing. Developed annual editorial calendar. Researched business topics, wrote stories, shot photos, planned weekly layouts and proofread copy.
 
@@ -41,7 +41,7 @@ Covered business news in 130,000-population Johnson County, home of the Universi
 • Took lead in magazine projects, including 40 Under Forty Five-Year Anniversary and Corridor Living. 
 • Wrote 3,000 words weekly for print newspaper, daily email updates and website. Shot and processed photos weekly. Helped manage website. Contributed to special projects throughout the year.
 
-*Events & Media Coordinator and Web Master*
+*Events and Media Coordinator and Web Master*
 Critical Hit Games - Coralville, Iowa
 December 2005 to June 2008
 Helped launch startup of a new retail business focused on hobby gaming that attracted customers from across the Midwest. Communicated with major manufacturers, local media and various groups to promote and organize events, advertising and other projects for a small business. Designed and wrote code for website.
